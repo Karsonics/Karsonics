@@ -5,7 +5,7 @@
 - 📫 How to reach me (you cant im antisocial af)
 - 😄 Pronouns: no goffy ahhhh pronouns
 - ⚡ Fun fact: im a huge bleach fan 
-
+- ✨you are my special✨
 <!---
 Karsonics/Karsonics is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
