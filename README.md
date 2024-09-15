@@ -7,7 +7,7 @@
 **`A epic coder in training and I watch anime and play gacha ganes and no im not a lost cuase`**
 **`________________________________________________________________`**
 
-**`________________________________________________________________`**
+*`________________________________________________________________`*
 - 👋 Hi, I’m @Karsonics
 - 👀 I’m interested in doing the most random stuff without trying 
 - 🌱 I’m currently learning in life rn fr fr 
@@ -20,4 +20,4 @@
 Karsonics/Karsonics is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-**`________________________________________________________________`**
+*`________________________________________________________________`*
