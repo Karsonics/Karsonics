@@ -1,3 +1,9 @@
+**`A epic coder in training`**
+
+
+
+
+
 - 👋 Hi, I’m @Karsonics
 - 👀 I’m interested in doing the most random stuff without trying 
 - 🌱 I’m currently learning in life rn fr fr 
