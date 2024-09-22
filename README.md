@@ -4,7 +4,7 @@
 
 
 
-*`A epic coder in training and I watch anime and play gacha ganes and no im not a lost cuase`*
+*`A epic coder in training and I watch anime and play gacha games and no im not a lost cuase`*
 
 
 *`________________________________________________________________`*
